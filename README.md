@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @codebc7
 - 👀 I’m interested in Football
 - 🌱 I’m currently learning Nothing
-- 💞️ I’m looking to collaborate on bccccccccccc
+- 💞️ I’m looking to collaborate on Siiiuuuuuu
 - 📫 How to reach me contact me
 
 <!---
